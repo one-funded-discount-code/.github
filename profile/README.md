@@ -1,4 +1,4 @@
-**FunderPro Discount Code INVEST 2026 – 80% OFF All Challenges**
+**One Funded Discount Code INVEST 2026 – 15% OFF All Challenges**
 
 Looking for a smarter way to trade and save? **One Funded** is your trusted platform for fast, secure, and reliable funded trading accounts. Whether you’re just starting or already a pro, you can now get an **exclusive 15% discount** by using the promo code: **INVEST** when you register or make a purchase.
 
